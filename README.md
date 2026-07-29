@@ -124,5 +124,5 @@ Modifikasi project ini dengan menambahkan:
 
 ![Image Alt](https://github.com/revandikavico/Profil-Mahasiswa/blob/ac091576bea222542065e9a722aee05185f46241/WhatsApp%20Image%202026-07-30%20at%2004.11.43.jpeg)
 
-![Image Alt](
+![Image Alt](https://github.com/revandikavico/Profil-Mahasiswa/blob/646649a9692bd4b5f30d69e1cfd50b55106cab25/WhatsApp%20Image%202026-07-30%20at%2004.11.44.jpeg)
 
